@@ -96,7 +96,7 @@ Namun, yang mengejutkan bukanlah nama itu. Tapi kode yang menempel di bawahnya: 
 
 "Tidak mungkin…"
 
-<p>Ajin memandangi layar, otaknya berusaha mencari logika.
+<p>Helena memandangi layar, otaknya berusaha mencari logika.
 
 Lalu, ia membuka satu folder lain: <i>Subject Merged DNA Experimental Records.</i>
 
