@@ -1,9 +1,5 @@
 # KODERAHASIA-SYAM-ELION
-<!doctype html>
 <html>
-<head>
-  <title>1KODE RAHASIA:SYAM ELION</title>
-</head>
 
 <body>
   <p><b>KODE RAHASIA: SYAM ELION</b></p>
