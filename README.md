@@ -70,5 +70,3 @@ Lazran Elion Feryan, sekarang di tahun terakhir teknik robotika; adik perempuan 
 </p>
   <p><i>"Jika kau mencintainya, jangan biarkan ia tahu. Karena kalau ia tahu… kau harus memilih antara dia atau negara." - Direktur BIN
 </i></p>
-</body>
-</html>
