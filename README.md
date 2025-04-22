@@ -73,68 +73,10 @@ Lazran Elion Feryan, sekarang di tahun terakhir teknik robotika; adik perempuan 
 
 
 
- <p><b>KODE RAHASIA: SYAM ELION</b></p>
- <p><b>Bab 2: Jejak Darah dan Ingatan yang Hilang</b></p>
+  <p><b>KODE RAHASIA: SYAM ELION<b><p>
+  <p><b>Bab 3: Operasi Hening & Rahasia Darah Pertama<b><p>
 
 
-<p>Helena tak tidur malam itu. Ia duduk bersila di atas lantai kayu dingin, di hadapan sebuah berkas bercap Level 5: Restricted Bloodline Access. Di dalamnya, ada satu dokumen yang membuat detak jantungnya berhenti sejenak.</p>
-
-
-<p>Nama lengkapnya: <b>Haya Helena Avyre.</b></p>
-<p>
-
-Namun, yang mengejutkan bukanlah nama itu. Tapi kode yang menempel di bawahnya: <i>Proyek Ascentis: Anak ke-2 dari Subjek A & B.</i></p>
-
-
-<p>"...anak ke-2?" bisiknya.</p>
-
-<p>Helena selama ini yakin dirinya adalah anak pertama. Tapi proyek ini menunjukkan bahwa ia bukan anak sulung. Ada satu anak yang lebih tua darinya.</p>
-
-
-<p>Dan nama itu... muncul di bagian atas dokumen sebagai subjek hidup: <i>Syam Elion Feryan.</i>
-<p>
-
-"Tidak mungkin…"
-
-<p>Helena memandangi layar, otaknya berusaha mencari logika.
-
-Lalu, ia membuka satu folder lain: <i>Subject Merged DNA Experimental Records.</i>
-
- 
-<p>|<i>Subjek A: Rumi Avyre (ayah Helena) Subjek B: Eliya Mahestya Feryan (Ibu Syam)</i>
-
-
-
-
-<p>"Apa…?" perasaan Helena campur aduk. Ia tercengang. Namun membuatnya terdiam juga. Ia bingung, entah apa yang akan ia lakukan setelah mengetahui kenyataan pahit ini.</p>
-<p>Helena masih dalam diamnya. Ia baru sadar… ayahnya dan ibu Syam pernah terlibat dalam proyek penyatuan DNA demi menciptakan 'agen sempurna'. Mereka menggunakan embrio hasil rekayasa genetik yang diimplantasikan ke dua rahim berbeda.</p>
-
-
-<p><b>Helena dan Syam... saudara tiri hasil eksperimen.</b></p>
-
-
-<p>Tapi hanya satu orang yang diprogram untuk tahu, yaitu: Helena.
-
- Sedangkan Syam… otaknya telah di-reset dari usia tiga tahun. Ia tidak tahu. Ia tak pernah tahu.</p>
-<p>
-
-Masih ditengah bungkamnya Helena karena keterkejutannya mengetahui semua itu. tiba tiba, ponselnya berdering. Pesan terenkripsi masuk.</p>
-
-
-<p>|<i>Target: Dr. Syam Elion Feryan. Eliminate if knowledge breach exceeds Level 3. Kode Merah mulai pukul 02.00.</i>
-
-<p>Helena menatap layar kosong.</p>
-
-<p><i>
-
-"Tuhan… aku mencintainya. Tapi aku juga... bagian dari kesalahan besar ini."</i></p>
-
-
-
-<p><b>KODE RAHASIA: SYAM ELION<b><p>
-<p><b>Bab 3: Operasi Hening & Rahasia Darah Pertama<b><p>
-
-  
 <p>Jam menunjukkan pukul 01.47 dini hari. Di atap gedung rumah sakit tempat Syam biasa bertugas malam, angin menggigit dan kabut tipis menyelimuti horizon kota. Helena berdiri diam, headset komunikasi di telinganya aktif, jari-jari tangan menggenggam pistol senyap dengan peluru tipe R-7, peluru mikro yang menghancurkan DNA target dalam dua detik.<p>
 
 <p>"Target bergerak ke lantai 12. Dia sendiri."<p>
@@ -165,11 +107,11 @@ Masih ditengah bungkamnya Helena karena keterkejutannya mengetahui semua itu. ti
 
 <p>Helena terpaku. Dunia seakan berhenti.<p>
 
-<p>"Kau pikir aku tak ingat apa-apa? Tentang eksperimen itu? Tentang kamar putih? Tentang 'Haya', nama yang kau bisikkan waktu aku kecil dan selalu membuatku tenang?"
+<p>"Kau pikir aku tak ingat apa-apa? Tentang eksperimen itu? Tentang kamar putih? Tentang 'Haya', nama yang kau bisikkan waktu aku kecil dan selalu membuatku tenang?"<p>
 
-Ajin menggigil. Pistolnya jatuh.
+<p>Helena menggigil. Pistolnya jatuh.<p>
 
-"Aku ingat, Helena. Semuanya. Tapi aku diam. Karena aku juga mencintaimu. Dari dulu."
+<p>"Aku ingat, Helena. Semuanya. Tapi aku diam. Karena aku juga mencintaimu. Dari dulu."<p>
 
 <p>Helena berlutut. "Aku seharusnya melindungimu… bukan mengawasimu."<p>
 
@@ -193,6 +135,4 @@ Ajin menggigil. Pistolnya jatuh.
 
 <p>Saat Syam lari menuruni tangga darurat, air matanya jatuh. Di belakangnya, Helena menyalakan perangkat pemusnah data dan menatap ke arah kamera dengan tenang.<p>
 
-<p>|<i>"Untukmu, Syam. Aku bukan lagi agen. Aku hanya… seseorang yang jatuh cinta, dan ingin kamu hidup."<i><p>
-
-
+<p><i>|"Untukmu, Syam. Aku bukan lagi agen. Aku hanya… seseorang yang jatuh cinta, dan ingin kamu hidup."<i><p>
