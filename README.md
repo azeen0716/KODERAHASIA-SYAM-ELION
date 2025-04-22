@@ -133,6 +133,8 @@ Masih ditengah bungkamnya Helena karena keterkejutannya mengetahui semua itu. ti
 
 <p><b>KODE RAHASIA: SYAM ELION<b><p>
 <p><b>Bab 3: Operasi Hening & Rahasia Darah Pertama<b><p>
+
+  
 <p>Jam menunjukkan pukul 01.47 dini hari. Di atap gedung rumah sakit tempat Syam biasa bertugas malam, angin menggigit dan kabut tipis menyelimuti horizon kota. Helena berdiri diam, headset komunikasi di telinganya aktif, jari-jari tangan menggenggam pistol senyap dengan peluru tipe R-7, peluru mikro yang menghancurkan DNA target dalam dua detik.<p>
 
 <p>"Target bergerak ke lantai 12. Dia sendiri."<p>
@@ -191,7 +193,7 @@ Ajin menggigil. Pistolnya jatuh.
 
 <p>Saat Syam lari menuruni tangga darurat, air matanya jatuh. Di belakangnya, Helena menyalakan perangkat pemusnah data dan menatap ke arah kamera dengan tenang.<p>
 
-<p><i>|"Untukmu, Syam. Aku bukan lagi agen. Aku hanya… seseorang yang jatuh cinta, dan ingin kamu hidup."<i><p>
+<p>|<i>"Untukmu, Syam. Aku bukan lagi agen. Aku hanya… seseorang yang jatuh cinta, dan ingin kamu hidup."<i><p>
 
 </body>
 </html>
