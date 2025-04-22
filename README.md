@@ -195,5 +195,4 @@ Ajin menggigil. Pistolnya jatuh.
 
 <p>|<i>"Untukmu, Syam. Aku bukan lagi agen. Aku hanya… seseorang yang jatuh cinta, dan ingin kamu hidup."<i><p>
 
-</body>
-</html>
+
