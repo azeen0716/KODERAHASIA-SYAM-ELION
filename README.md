@@ -135,4 +135,4 @@ Lazran Elion Feryan, sekarang di tahun terakhir teknik robotika; adik perempuan 
 
 <p>Saat Syam lari menuruni tangga darurat. Di belakangnya, Helena menyalakan perangkat pemusnah data dan menatap ke arah kamera dengan tenang.</p>
 
-<p><i>|"Untukmu, Aufa. Aku bukan lagi agen. Aku hanya… seseorang yang jatuh cinta, dan ingin kamu hidup."</i></p>
+<p><i>|"Untukmu, Syam. Aku bukan lagi agen. Aku hanya… seseorang yang jatuh cinta, dan ingin kamu hidup."</i></p>
