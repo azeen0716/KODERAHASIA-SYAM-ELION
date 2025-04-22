@@ -82,7 +82,7 @@ Lazran Elion Feryan, sekarang di tahun terakhir teknik robotika; adik perempuan 
 
 <p>Suara operator BIN terdengar datar di telinganya. Tapi bagi Helena, itu seperti perintah mati.</p>
 
-<p>Syam sedang di ruang operasi minor. Memeriksa hasil autopsi seorang pasien misterius—yang tak lain adalah salah satu korban eksperimen yang lepas kontrol.</p>
+<p>Syam sedang di ruang operasi minor. Memeriksa hasil autopsi seorang pasien misterius, yang tak lain adalah salah satu korban eksperimen yang lepas kontrol.</p>
 
 <p>turun. Diam-diam. Tanpa suara. Tapi dadanya tak bisa dibungkam.</p>
 
