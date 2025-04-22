@@ -1,4 +1,4 @@
-# KODERAHASIA1-SYAM-ELION
+w# KODERAHASIA1-SYAM-ELION
 <html>
 
 <body>
@@ -75,6 +75,72 @@ Lazran Elion Feryan, sekarang di tahun terakhir teknik robotika; adik perempuan 
 
   <p><b>KODE RAHASIA: SYAM ELION<b><p>
   <p><b>Bab 3: Operasi Hening & Rahasia Darah Pertama<b><p>
+
+
+<p>Jam menunjukkan pukul 01.47 dini hari. Di atap gedung rumah sakit tempat Syam biasa bertugas malam, angin menggigit dan kabut tipis menyelimuti horizon kota. Helena berdiri diam, headset komunikasi di telinganya aktif, jari-jari tangan menggenggam pistol senyap dengan peluru tipe R-7, peluru mikro yang menghancurkan DNA target dalam dua detik.<p>
+
+<p>"Target bergerak ke lantai 12. Dia sendiri."<p>
+
+<p>Suara operator BIN terdengar datar di telinganya. Tapi bagi Helena, itu seperti perintah mati.<p>
+
+<p>Helena sedang di ruang operasi minor. Memeriksa hasil autopsi seorang pasien misterius, yang tak lain adalah salah satu korban eksperimen yang lepas kontrol.<p>
+
+<p>Helena turun. Diam-diam. Tanpa suara. Tapi dadanya tak bisa dibungkam.<p>
+
+<p>---<p>
+
+<p>Ruangan itu sunyi. Hanya ada suara jantung pasien di layar monitor, dan suara bolpen Syam mencatat di formulir.<p>
+
+<p>"Helena?"<p>
+
+<p>Helena terkejut. Tentu saja. Bagaimana bisa Syam mengetahui nama aslinya. Begitupun ia terkejut, Ia belum masuk ruangan, tapi Syam sudah mengetahui keberadaannya.<p>
+
+<p>"Kau terlalu pelan untuk disebut dokter, dan terlalu cepat untuk disebut perawat. Aku hafal langkah kakimu."<p>
+
+<p>Helena masuk, menanggalkan sarung tangannya perlahan. Pistolnya masih tersembunyi di pinggang dibalik jasnya.<p>
+
+<p>"Kenapa kau di sini malam-malam?" Syam menatapnya. Mata itu… bukan hanya mata dokter. Tapi mata seseorang yang menyimpan lebih dari sekadar rasa penasaran.<p>
+
+<p>Helena terdiam. Ia nyaris bicara, tapi bibirnya kelu.<p>
+
+<p>"Helena," ujar Syam, yang lagi lagi memanggil Helena dengan nama aslinya. "Aku tahu siapa kamu."<p>
+
+<p>Helena terpaku. Dunia seakan berhenti.<p>
+
+<p>"Kau pikir aku tak ingat apa-apa? Tentang eksperimen itu? Tentang kamar putih? Tentang 'Haya', nama yang kau bisikkan waktu aku kecil dan selalu membuatku tenang?"<p>
+
+<p>Helena menggigil. Pistolnya jatuh.<p>
+
+<p>"Aku ingat, Helena. Semuanya. Tapi aku diam. Karena aku juga mencintaimu. Dari dulu."<p>
+
+<p>Helena berlutut. "Aku seharusnya melindungimu… bukan mengawasimu."<p>
+
+<p>"Lalu kenapa kau bawa pistol malam ini?" Syam bertanya. Matanya sayu.<p>
+
+<p>Helena menatap matanya. "Karena aku disuruh membunuhmu. Tapi aku… lebih memilih mati daripada melakukannya."<p>
+
+
+<p>---<p>
+
+<p>Sirine darurat menyala. Sensor ruang 12 menyadap percakapan mereka.<p>
+
+<p>"BIN tahu kamu mengingatnya," bisik Helena cepat. "Mereka akan datang. Kau harus pergi. SEKARANG."<p>
+
+<p>"Dan kamu?"<p>
+
+<p>"Aku akan bertahan di sini. Aku akan hapus semua data. Aku akan jadi pengkhianat negara demi kamu."<p>
+
+
+<p>---<p>
+
+<p>Saat Syam lari menuruni tangga darurat, air matanya jatuh. Di belakangnya, Helena menyalakan perangkat pemusnah data dan menatap ke arah kamera dengan tenang.<p>
+
+<p><i>|"Untukmu, Syam. Aku bukan lagi agen. Aku hanya… seseorang yang jatuh cinta, dan ingin kamu hidup."<i><p>
+
+
+
+<p><b>KODE RAHASIA: SYAM ELION<b><p>
+<p><b>Bab 3: Operasi Hening & Rahasia Darah Pertama<b><p>
 
 
 <p>Jam menunjukkan pukul 01.47 dini hari. Di atap gedung rumah sakit tempat Syam biasa bertugas malam, angin menggigit dan kabut tipis menyelimuti horizon kota. Helena berdiri diam, headset komunikasi di telinganya aktif, jari-jari tangan menggenggam pistol senyap dengan peluru tipe R-7, peluru mikro yang menghancurkan DNA target dalam dua detik.<p>
